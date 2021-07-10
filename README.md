@@ -1,1 +1,1 @@
-# rsschool-cv
+https://shanidzenatia.github.io/rsschool-cv/cv
