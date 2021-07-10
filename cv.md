@@ -1,4 +1,4 @@
-# Natia shanidze
+# Natia Shanidze
 
 ###### Contact Info
 * n.shanidze9@gmail.com
